@@ -34,6 +34,5 @@ Prefer surviving to coding? There's a spot on the server for you too. Whitelist 
 
 I'll drop dates, drama, and everything in between on Discord first — always. That's where this story actually happens in real time.
 
----
 
-### Grab a brush. Let's paint something nobody's seen yet.
+## Grab a brush. Let's paint something nobody's seen yet.
