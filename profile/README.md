@@ -1,4 +1,4 @@
-## 🖌️ Meet the Canvas
+## CrayonSMP ❤️ Open-Surce
 
 Name's Qooper. I've got paint on my hands and a whole server's worth of ideas I haven't finished yet — which is exactly where you come in.
 
